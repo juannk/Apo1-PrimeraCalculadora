@@ -1,3 +1,3 @@
 # Apo1-PrimeraCalculadora
-el mejor de todos
+el que lo lea es gay JA JA JA
 
